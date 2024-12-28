@@ -1,0 +1,1 @@
+# techtrend_case_study
